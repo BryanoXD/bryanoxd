@@ -1,4 +1,4 @@
-# 👩🏻‍💻 Bryan Thomazin
+# <img src="https://media.giphy.com/media/lJoqZWcFDAbvy/giphy.gif" width="25"> Bryan Thomazin
 
 **`Desenvolvedor WEB`**
 
